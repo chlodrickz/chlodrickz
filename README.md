@@ -20,4 +20,4 @@ Plave, Dead Plate, Silent Hill, Evnne, Droomp, Lutfi Halimawan(O2H), etc. (I don
 
 
 
-Irl... I'm an emo 😀
+Irl.... I'm an emo 😀
