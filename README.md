@@ -15,7 +15,7 @@
 **``If you like any of these, please interact with me..**
 
 Xdinary Heroes(Villain), Ateez(Atiny), Saraunh0ly, Bôa, Whatsaheart, Artemas, Childish Gambino, 
-Chase Atlantic, Arctic Monkeys,The Neighborhood, Paramour, Trigun Stampede, JJBA, DC Comics, TBHK, Detroit Become Human, 
+Chase Atlantic, Arctic Monkeys,The Neighborhood, Paramore, Trigun Stampede, JJBA, DC Comics, TBHK, Detroit Become Human, 
 Plave, Dead Plate, Silent Hill, Evnne, Droomp, Lutfi Halimawan(O2H), etc. (I don't remember) 
 
 
